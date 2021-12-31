@@ -1,37 +1,26 @@
-## Welcome to GitHub Pages
+<h1>How To Roll A Blunt With Zig Zag Wraps</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-roll-a-blunt-with-zig-zag-wraps/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Zig Zag Blueberry Blunt</a></li><li><a href="#toc-1">Zig Zag Pineapple Blunt Cigar Wraps</a></li><li><a href="#toc-2">Kong Wraps Natural Hemp Blunt</a></li><li><a href="#toc-3">Zig Zag Cigar Wrap Cones Dragonberry 2 X 15 = 30 Ct</a></li><li><a href="#toc-4">Legal Lean Pure Cone Leaf Wraps King Measurement</a></li><li><a href="#toc-5">Part Two: Rolling The Zig Zag Blunt</a></li><li><a href="#toc-7">What Are Rolling Blunt Wraps?</a></li><li><a href="#toc-8">Zig Zag Blunt Wraps Melon Wrap 25</a></li></ul></div>
+<p>Higher Standards- A hemp wrap means that you are rolling up your cannabis with a wrap that may ship a similar flavor profile. So, you already know the means to smoke a joint, and you've got loved the benefits that smoking weed has done for you. Problem is you have to learn to roll a Zig Zag joint. Blunts, spliffs, and joints are the principle players when it comes to rolled cannabis. While each is slightly completely different from the opposite, they all include the negative results of smoking.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>Tips don't have any added chemical compounds which will interfere with the style, look or smoke expertise. They are merely wooden fibers shaped right into a paper used to create the cylinder shape and inside barrier of the filters. The cigars and blunt wraps are available in varied scrumptious flavors, such as apple, cherry, peach, orange, vanilla, and lots of more.</p>
+<h2 id="toc-0">Zig Zag Blueberry Blunt</h2>
+<p>Not to mention, it’s far easier to roll than your common blunt. To get an even burning blunt, you need properly floor weed. That’s why w advocate you use HØJ’s revolutionary KLIP grinder that slices by way of your bud without munching it, delivering evenly ground, trichome-covered weed. It may get messy you better have a correct tray to hold your tools. To avoid the guesswork and get a practical tray, go with the beautiful Blunt Father rolling tray from Matriarch.</p>
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-roll-a-blunt-with-zig-zag-wraps/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>Joints are definitely the most iconic approach to eat and enjoy cannabis. Ever because the first joint was lit, they've turn into a staple in hashish communities. This is why every cannabis smoker should purchase the data of the method to roll a joint.</p>
+<h3 id="toc-1">Zig Zag Pineapple Blunt Cigar Wraps</h3>
+<p>Strike your lighter and run the flame alongside the seam to lock it into place. Interviews have been conducted by phone between April and August 2015, recorded with permission from the respondents, and transcribed verbatim by research employees. Gift cards value $50 have been mailed to respondents after the completion of the interview as a token of appreciation. On average, every call lasted roughly half-hour. The Rutgers Biomedical and Health Sciences Institutional Review Board accredited all research procedures.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What is a zig zag wrap made of?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Zig-Zag papers are created from wood pulp and flax, and gummed with pure gum Arabic (also often known as gum acacia). They are available all the usual sizes, from single-wide to double-wide, and each normal and king-size lengths.</p></div>  </div></div>
+<p>Now you want to find the “vein” on the cigar– that’s where you split it. This, like blunt rolling itself, is a learned skill. Lots of people prefer to moisten the cigar to make it simpler to work with. That means, you’ll get a nice tight roll, whereas additionally shaping the blunt. Pay consideration to the ends; be certain to don’t by accident seal them up while you’re rolling.</p>
+<h3 id="toc-2">Kong Wraps Natural Hemp Blunt</h3>
+<p>Blazy Susans, made in France, mix high quality and aptitude with their wooden pulp make-up — which prevents any unwanted flavors mixing together with your weed — and pink hue. Blazy Susans are additionally vegan and non-GMO, which means you'll be able to smoke with peace of mind. And, they’re durable, which means no surprise rips whenever you roll.</p>
+<div style='text-align:center'><iframe width='567' height='310' src='https://www.youtube.com/embed/ynawubhtJxI' frameborder='0' alt='how to roll a blunt with zig zag wraps' allowfullscreen></iframe></div>
+<p>Orders with Free Shipping can expect supply instances of 3-16 business days. Orders that pay for expedited delivery have a mean delivery time of solely 2-3 business days! Grind your cannabis flower fairly for an even smoke. Roll the paper in by continuing to roll in direction of you.</p>
+<h2 id="toc-3">Zig Zag Cigar Wrap Cones Dragonberry 2 X 15 = 30 Ct</h2>
+<p>There are 2 blunt wraps per pack and 25 packs per display, for a complete of 50 wraps. Zig Zag wraps come inside reseal ready taste saving package. Zig Zag wraps come inside resealable taste saving package deal. Check out our flavored papers from manufacturers like Juicy Jays for a extensive selection. Guided by the crutch, softly run your fingers along the underside backbone of your taco to shape the blunt around the herb.</p>
+<ul><li>Otherwise you must use your two thumbs to gently tear it apart alongside the vein.</li><li>There’s a broad range of Elements rice paper varieties, including types like ultra-thin and king dimension.</li><li>A blunt is completely different from a joint in a few methods.</li><li>Together, they’ve crafted a specialty line of rolling papers and different high quality smoke shop merchandise, together with Wiz papers, cones and rolling trays.</li><li>After a stray bullet damaged his clay pipe, the soldier had managed to roll tobacco utilizing a strip of gunpowder bag.</li></ul>
+<p>Mike Tyson and Tyson Ranch have teamed up with the Amsterdam primarily based rolling company Futurola to launch a model new line of premium rolling gear. Citrus is the proper style that makes every little thing so zesty! This Billionaire Hemp Wraps Milli Mango flavor adds the perfect zest of citrus to your ... • The third step is to fill your joint with your herbs. Then you can start with shaping the joint with your fingers. CBD wraps are usually made from hemp and are infused with the soothing, non-psychoactive cannabinoid CBD .</p>
+<h3 id="toc-4">Authorized Lean Natural Cone Leaf Wraps King Measurement</h3>
+<p>The up-and-coming novelty brand is new to the scene, but they’ve nonetheless earned the love of smoke store fans all over the place. In fact, Kingpin Wraps are among the many hottest blunt wraps available on the market right now. Visit 710 Pipes to search out the most well-liked Kingpin flavors. Award-winning, multi-platinum rap icon Wiz Khalifa just lately partnered with the rolling paper brand RAW. Together, they’ve crafted a specialty line of rolling papers and other high quality smoke store products, including Wiz papers, cones and rolling trays. This collaboration has earned the love of Khalifa’s fans and RAW product lovers alike.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What is the straw for in Zig Zag cones?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>it is simply to keep the cone rounded (kind of like a shoe insert) this stuff take a lot of product. also you need to pack it very tight if you'd like it to burn good.</p></div>  </div></div>
+<p>Zig Zag has turn into a mainstay in the weed smoking scene – and for a good reason. Aside from producing high-quality rolling papers , in addition they supply equally exceptional cigar wraps for these who favor smoking blunts. Even higher, these ready-to-use wraps make the art of blunt rolling a breeze. White Owl rolling papers, cigarillos and cigars are top-of-the-line merchandise with devoted fans across the globe. The White Owl brand has shown its endurance, remaining a popular alternative for discerning smokers because the company started in 1887.</p>
